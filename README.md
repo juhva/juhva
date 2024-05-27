@@ -1,6 +1,6 @@
 ## Boas vindas ao meu _perfil_ 💋
 
-Meu nome é **Júlia Heloá** 
+Meu nome é **Júlia Valim** 
 
 Para entrar em contato comigo💌
 
