@@ -1,4 +1,4 @@
-## Boas vindas ao meu _perfil_ 💋
+**Boas vindas ao meu _perfil_ 💋**
 
 Meu nome é **Júlia Valim** 
 
